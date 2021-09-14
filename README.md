@@ -1,0 +1,1 @@
+# tyt-kimya-planli-ders-foyu-32
